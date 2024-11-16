@@ -10,7 +10,8 @@
 
 <p align = "center"> <img width="900" height="400" src = "https://64.media.tumblr.com/7f6a74393707e5a747a27c364b339836/86694123c674cc3a-97/s640x960/fa57c986d473cc5a71724b631c983e57cf8a916a.pnj"> </p>
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎Rentry⁺ 　 . ✦ . 　⁺  Carrd⁺ 　 . ✦ . 　⁺  Pronouns ⁺ 　 . ✦ . 　⁺ Retrospring
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[Rentry](https://rentry.co/I-Deserve-To-Ble3d)⁺ 　 . ✦ . 　⁺  [Carrd](https://vampire-me.carrd.co)⁺ 　 . ✦ . 　⁺  [Pronouns](https://pronouns.cc/@V4lent1n3_) ⁺ 　 . ✦ . 　⁺ [Retrospring](https://retrospring.net/@V4mp)
+
 <p align = "center"> <img src = "https://64.media.tumblr.com/3da467ff1340c78400b741515258dfda/eed262c3dd030bba-08/s100x200/9a52d1792a55170edc2382a262a40672f06bf615.gif"> </p>
 
   <p align = "center"> Graphics found on tumblr: deertism & timedusts  </p>
